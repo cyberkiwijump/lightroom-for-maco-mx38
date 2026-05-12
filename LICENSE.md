@@ -1,4 +1,4 @@
-# 
+# Enhance Lightroom for macOS with advanced Lightroom for macOS Workflow | preset-packs + social-media-export, the #1 workflow. Includes preset-packs and social-media-export for a
 
 
 
